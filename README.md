@@ -13,4 +13,8 @@ ib tset ans
 Ответ: 4096 ?
 
 67
-
+burerg
+burergburerg
+burerg
+burerg
+burerg
